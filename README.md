@@ -1,3 +1,3 @@
-Julia
+Julia Meltzer
 
 she/her/hers
